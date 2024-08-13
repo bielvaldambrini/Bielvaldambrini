@@ -8,7 +8,7 @@
 - Estou fazendo o curso do alura
 - Adoro jogar e treinar basquete
 - Gosto de volêi também
-- Tenho 17 anos
+- Tenho 18 anos
 - Meu aniversario é no dia 12/07 (doze de julho)
 - Sou da cidade de Mogi Guaçu (interior de são paulo)
 - Para entrar em contato comigo basta me chama no e-mail:gonzaleznico604@gmail.com
